@@ -1,6 +1,9 @@
 Lovino strips down to see if he’s truly invisible,
+
 Or if it’s simply true that Lovino is just a lonely bastard. 
+
 He picks fights in the crowd to prove he exists;
+
 Lovino always feels alone—a bastard,
 
 **a child of nothing.**

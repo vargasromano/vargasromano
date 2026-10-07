@@ -1,5 +1,5 @@
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/ed9b356f-90a3-4f21-915d-ffd463e96b71" /> 
 
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/d1e4ff06-4a04-4c15-b632-8076b57152a6" /> 
 
 
 Lovino strips down to see if he’s truly invisible,
@@ -11,6 +11,10 @@ He picks fights in the crowd to prove he exists;
 Lovino always feels alone—a bastard,
 
 **a child of nothing.**
+
+
+<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/d1e4ff06-4a04-4c15-b632-8076b57152a6" /> 
+
 
 <!--
 **vargasromano/vargasromano** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -13,7 +13,6 @@ Lovino always feels alone—a bastard,
 **a child of nothing.**
 
 
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/d1e4ff06-4a04-4c15-b632-8076b57152a6" /> 
 
 
 <!--

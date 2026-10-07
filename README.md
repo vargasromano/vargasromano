@@ -1,3 +1,7 @@
+
+<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/d1e4ff06-4a04-4c15-b632-8076b57152a6" /> 
+
+
 Lovino strips down to see if he’s truly invisible,
 
 Or if it’s simply true that Lovino is just a lonely bastard. 
